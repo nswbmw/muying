@@ -1,1 +1,1 @@
-[《木莺》](nswbmw.github.io/muying/)——一本记录八年青春和成长的诗集
+[《木莺》](http://nswbmw.github.io/muying/)——一本记录八年青春和成长的诗集
